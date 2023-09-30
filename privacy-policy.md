@@ -17,4 +17,4 @@ We may use cookies and similar technologies to collect information about how you
 We reserve the right to change this Privacy Policy at any time. Updates will be announced on our website.
 
 6. Contact
-If you have any questions or suggestions about our Privacy Policy, please contact us via email: [your@email.com].
+If you have any questions or suggestions about our Privacy Policy, please contact us via email: [dangtam1646@gmail.com].
